@@ -1,0 +1,2 @@
+# Bleach
+Shinigami, Hollow, Bankai
